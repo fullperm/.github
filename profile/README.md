@@ -1,4 +1,4 @@
-## Hello Avatar 👋
+## Hello Avatar ! ✨
 
 <!--
 
